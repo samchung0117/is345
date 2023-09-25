@@ -1,0 +1,1 @@
+* SZPU IS Information Security
